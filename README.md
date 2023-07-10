@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **sibimohan777@gmail.com**
 
-- ⚡ Fun fact **I am funny**
+- ⚡ Fun fact **One_thing_I_can't_live_without_is_Music🎶️**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
